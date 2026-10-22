@@ -1,4 +1,4 @@
-## Hi, I'm Shravani 👋##
+## Hi, I'm Shravani 👋
 
 🎓 B.Tech Graduate in Computer Science & Engineering (CSE) from Chhatrapati Shivaji Maharaj University
 
